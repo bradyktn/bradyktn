@@ -16,7 +16,6 @@
 💞️ I’m looking to collaborate on...
 
     Security assessments and ethical hacking projects.
-    IT Help Desk and troubleshooting roles.
     Innovative solutions to complex cybersecurity challenges.
 
 📫 How to reach me...
